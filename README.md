@@ -1,2 +1,3 @@
 # informatico_cursotecnico
- adoro desenvolveer
+ adoro desenvolve
+ Wendyy'Taylor Version
